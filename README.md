@@ -216,4 +216,4 @@ FIFA Street is provided as a complete free version with all features and updates
 Ready to take your street soccer skills to the next level? **Download FIFA Street now and start playing!**
 
 ---
-**Last updated:** 2026-09-16 01:58:43 UTC
+**Last updated:** 2026-09-16 07:12:23 UTC
